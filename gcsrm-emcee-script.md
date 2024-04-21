@@ -5,13 +5,13 @@ Good afternoon, everyone, and welcome to the GCSRM Internal Ideathon! We're exci
 Absolutely! Over the next few hours, we'll witness the power of ideas as our teams delve into brainstorming sessions, develop innovative solutions, and ultimately pitch their concepts to the panel of judges.
 
 # Emcee 1:
-But before we dive into the ideation process, let's kick things off with the presentation evaluation. Our teams have worked hard to prepare their initial concepts, and now it's time to showcase their ideas and receive valuable feedback.
+Our teams have worked hard to prepare their initial concepts, and now it's time to showcase their ideas and receive valuable feedback.
 
 # Emcee 2:
 That's right! Following the presentation evaluation, teams will transition into idea development and presentation preparation sessions. This is where the magic happens - refining concepts, honing pitches, and preparing to impress the judges.
 
 # Emcee 1:
-And let's not forget about the pitch presentations! Each team will have the opportunity to present their refined ideas to the panel of judges, who will be evaluating based on creativity, feasibility, and impact.
+Each team will have the opportunity to present their refined ideas to the panel of judges, who will be evaluating based on creativity, feasibility, and impact.I would like to remind you guys that all the teams will be given 5 minutes to pitch their ideas follwed by a 2 min Q&A session.
 
 # Emcee 2:
 Exciting times ahead! And finally, we'll conclude the ideathon with the announcement of the winners and some closing remarks. It's been an incredible journey of collaboration and innovation, and we can't wait to celebrate the outstanding ideas that have emerged today.
